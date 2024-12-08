@@ -6,6 +6,12 @@
 
 I am a Wuhan No.2 Junior Middle School student in China.
 
+## Contact me
+
+- E-mail: [xxjingy1@outlook.com](mailto:xxjingy1@outlook.com)
+
+- Bilibili: [@光间Teko_Ikarai](https://space.bilibili.com/1365405592/)
+
 ## Repositories
 
 none...
