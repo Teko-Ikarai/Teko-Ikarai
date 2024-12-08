@@ -4,7 +4,7 @@
 
 ---
 
-I am a student in middle school in China.
+I am a Wuhan No.2 Junior Middle School student in China.
 
 ## Repositories
 
