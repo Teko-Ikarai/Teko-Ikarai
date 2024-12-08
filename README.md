@@ -6,6 +6,8 @@
 
 I am a Wuhan No.2 Junior Middle School student in China.
 
+Arcaea is the greatest! 
+
 ## Contact me
 
 - E-mail: [xxjingy1@outlook.com](mailto:xxjingy1@outlook.com)
