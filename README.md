@@ -10,7 +10,7 @@ Arcaea Saiko!
 
 ## Contact me
 
-- E-mail: [yjym20318@163.com](mailto:yjym20318@163.com)[xxjingy1@outlook.com](mailto:xxjingy1@outlook.com)
+- E-mail: [yjym20318@163.com](mailto:yjym20318@163.com) or [xxjingy1@outlook.com](mailto:xxjingy1@outlook.com)
 
 - Bilibili: [@光间Teko_Ikarai](https://space.bilibili.com/1365405592/)
 
