@@ -16,6 +16,4 @@ Arcaea Saiko!
 
 ## Repositories
 
-none...
-
-I believe one day there will be some ~~(maybe not)~~ ............
+- Inorrow Tab
